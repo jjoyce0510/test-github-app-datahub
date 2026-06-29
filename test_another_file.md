@@ -1,5 +1,3 @@
-# yES
+Yes here it goes! 
 
-# hERE IS THE THING
-
-I don't know what to do! 
+Okay let's go ahead. 
